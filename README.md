@@ -1,0 +1,1 @@
+- Thông tin game : <a href="https://drive.google.com/file/d/16a4UFhIV7d7OBiaof8Taw8p0RMSDRpWC/view?usp=sharing">tại đây</a>
